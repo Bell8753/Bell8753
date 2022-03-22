@@ -6,6 +6,8 @@ Interested in: Application, language, psychology
 
 Hobbies: reading novel, listen to music, sleep and eat
 
+Contact: Email: bongkod.bell@g.swu.ac.th
+         IG: bkbsri
 <!---
 Bell8753/Bell8753 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
